@@ -10,3 +10,9 @@ I look forward to connecting with all of you and exploring the amazing opportuni
 Let's make great things together!
 
 Ayesha Malik
+
+##my previous qualifications:
+so i would love to tell you about myself so i have done my matriculation from sir syed college and i got A1 grade in it after that i persured fsc in pred medical subjects and i got A grade in it.I ve done my bachelors in english linguistics and literature from fatima jinnah women university. after that i opted for some courses from virtual university that include freelancing and creative writing.
+
+
+
